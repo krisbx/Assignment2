@@ -8,6 +8,6 @@ Worked alongside my older sister, she was already good friends with most of the 
 
 While we were setting up for a large event, we were able to taste test all of the food that would be presented.
 
-Training was not optimal. I didnt get a chance to learn where items were stored, making my shifts a bit more difficult in the beginning.
+Training was not optimal. I didn't get a chance to learn where items were stored, making my shifts a bit more difficult in the beginning.
 
 The grade it gets is B.
