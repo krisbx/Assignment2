@@ -1,1 +1,1 @@
-Contact information here
+kris@banse.ca
